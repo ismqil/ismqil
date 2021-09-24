@@ -1,0 +1,4 @@
+- 👋 Selam ben İsmail 13 yaşında programlamayla ilgilenen birisiyim. 
+- 👀 Genel olarak Javascript üzerinde kendimi geliştiriyorum.
+- 📫 Discord: ism4il#7045
+- 📫 İnstagram: ism4ilaydinlik
